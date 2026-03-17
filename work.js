@@ -1,1 +1,1 @@
-learning is procedural dont procrastinate on it and be focus
+learning is procedural don't procrastinate on it and be focus
